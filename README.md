@@ -1,1 +1,3 @@
-# micros
+# micros 🎲
+
+Only God
